@@ -1,1 +1,1 @@
-# inclusive places in SG
+# inclusive places in Singapore
